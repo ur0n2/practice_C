@@ -1,1 +1,1 @@
-2016 software competition contest in sejong univ.
+We are not a team. This is a comptetition! - Jessi
